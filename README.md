@@ -1,2 +1,2 @@
 # mipuno
-pagina cutural 
+pagina cultural 
